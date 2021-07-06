@@ -64,6 +64,6 @@ DramaTechie - инициатива Юлии Ворик и Марии Танин�
 
 
 
-## II. Сопроводительное [письмо](https://drive.google.com/file/d/109xLlAbRBKOUZQESmEBPw5JRRPYD3oKu/view?usp=sharing)   
+## II. Сопроводительное [письмо](https://drive.google.com/file/d/109xLlAbRBKOUZQESmEBPw5JRRPYD3oKu/view?usp=sharing)    
 
 
