@@ -22,7 +22,7 @@
 Занималась постановкой детских и взрослых танцевальных номеров и театральных миниатюр в период с 21.07.2017 по 02.07.2021.
 #### Подтверждение от руководителя студии:
 
-<img src="../img/confirmation_lieka.by_TATSIANA_BELANOUSKAYA_.jpg" alt="drawing" width="75%"/>
+<img src="/../img/confirmation_lieka.by_TATSIANA_BELANOUSKAYA_.jpg" alt="drawing" width="75%"/>
 
 Фото с занятий:
 
